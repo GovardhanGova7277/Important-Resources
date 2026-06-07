@@ -6,4 +6,4 @@ List of important links to get knowledge.
 
 ## About India
 
-[Indian Middle Class Paradox (Reddit)] (https://open.substack.com/pub/thequantifiedindia/p/the-indian-middle-class-paradox?r=2j47z2&utm_campaign=post&utm_medium=web)
+[Indian Middle Class Paradox (Reddit)](https://open.substack.com/pub/thequantifiedindia/p/the-indian-middle-class-paradox?r=2j47z2&utm_campaign=post&utm_medium=web)
